@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://telegra.ph/ThanosXMuisc-start-pic-01-08">
+  <img src="https://telegra.ph/Thanos-01-08-8">
 </p>
 
 <p align="center">
